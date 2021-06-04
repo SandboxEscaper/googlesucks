@@ -1,5 +1,4 @@
 # googlesucks
-Fbi sucks too
 
 
 google deleted my blog. 
