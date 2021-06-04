@@ -7,4 +7,6 @@ I suspect some stalker has been trying their best to abuse the report system bec
 So now impersonators can do what they want. 
 I do not own a twitter. @sandboxe is not me. @bearsandbox is also not me. SandboxEscaper on telegram is also not me. If you get contacted by someone claiming to be me. Its not me. I dont talk to people.
 
+Both twitter and google are fucking retarded. I would literally do anything to feel less alone in my apartment when I'm stuck with these dark thoughts. I don't do it for fun or shock value. It's my fucking way of coping with this shit. And all you fucktards do is censor me. You're all a bunch of cowards. 
+
 Anyway, I'm not with Microsoft anymore and I'm going to set the world ablaze one day and hack the fbi. bye 
